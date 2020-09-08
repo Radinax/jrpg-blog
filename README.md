@@ -1,0 +1,3 @@
+## JRPG BLOG
+
+Content pending
